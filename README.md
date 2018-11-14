@@ -1,37 +1,32 @@
 # Próxima visita  
+### Fecha  
+  + éste domingo 18 de Noviembre!
 
-+ Fecha:
-  + 18 / 19, a decidir  
+### Almuerzo  
+  + empanadas y pollo con alguna guarnición (cuál?)
+  + pedir panes a Mati Rios (quién podría retirar?)
+  + bidones/botellas de jugo
+  + **almorzamos todos en el hogar!**
 
-+ Almuerzo:
-  + empanadas y sandwiches  
-  + pedir panes a Mati Rios, cosenguir lechuga y/o tomate, descongelar pollo (cuánto?)
-  + **dividir almuerzo entre grupo parque y grupo hogar...**
+### Juegos  
+  + Fútbol-Tenis (precisamos una cuerda, y capaz algo para clavar en la tierra)
+  + Kickball (llevar la pelota blanda)
+  + Quemados
+  + Bandejas con vasos
+  + El rey Pide
+  + Collage con los materiales del juego anterior
+  + Memotest
+  + Juego de la papa caliente
+  + Masa, si se puede
 
-+ Los que salen al parque:  
-  + vamos con los más grandes y nos queda el momento para ellos
-  + materiales requeridos:
-    + lonas
-    + vasitos
-    + bidones/botellas de jugo
-    + servilletas
-    + botiquín sencillo
-  + juegos:
-	  + Fútbol-Tenis (precisamos una cuerda, y capaz algo para clavar en la tierra)
-    + Kickball (llevar la pelota blanda)
-    + Quemados
-    + Volley
-    + Bandejas con vasos
-    + Guías (juego con sogas entre árboles, un chico guía al otro)
-  + música, testimonios, oraciones, lo que vaya saliendo
+### Espontáneos  
+  + Hacer música
+  + Oración y cosas power con los chicos, según cada uno quiera contar/se vaya dando
+  + Fluir y enseñar a los chicos, mostrarles cariño como Jesús, todas las cosas
 
-+ Los que quedan en el hogar:
-  + un grupo de los más chicos queda en el hogar. Aprovechar este tiempo especial
-  + Juegos:
-    + El rey Pide
-    + Collage con los materiales del juego anterior
-    + Memotest
-    + Juego de la papa caliente
-    + Masa, si se puede
+### Merienda  
+  + Tratar de merendar a las 16:45 para cooperar con las celadoras
 
-+ Tratar de merendar a las 16:45 para cooperar con las celadoras
+## Oración al final!
+  + (pero que no sea tan al final, que tengamos tiempo para no irnos corriendo)
+  + Oremos con los chicos, todo según lo que haya pasado en el día
